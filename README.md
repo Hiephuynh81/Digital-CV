@@ -43,7 +43,3 @@
 •	Working under high pressure
 •	Loving learning new technical knowledge 
 ```
-
-
-
-
